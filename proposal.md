@@ -1,6 +1,6 @@
 ## Hello 👋
 
-I came across your profile on craigslist.
+I came across your resume on craigslist.
 
 **A bit about us:** I'm a recruiter at an IT company based in Hong Kong, with a team of 18 people. We're currently expanding our remote operations into the U.S., and I'm looking to connect with someone locally who could partner with us on a **long-term basis**.
 
